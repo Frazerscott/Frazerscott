@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Frazerscott
+- 🌱 I’m currently hiring product people at at IKEA 
+- 📫 How to reach me: https://www.linkedin.com/in/frazerscott1/
